@@ -1,0 +1,1 @@
+# Cobertura_Veg_Arequipa
